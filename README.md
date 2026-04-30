@@ -7,4 +7,6 @@ im free to int and u can c+h freely, but whisper b4 interact cuz i like to afk ,
 ***dni*** ; base and judge by stereotypes х_х
 
 [check out my inf✶ tgc for more](http://t.me/yqwixx)
-<img width="735" height="613" alt="Image" src="https://github.com/user-attachments/assets/9492ae7a-5d34-42f7-a1ca-b81e2b1e0f74" />
+
+╰⠀✧⠀☁️ . ──╮⠀⠀⠀!!⠀⠀⠀╭──💭⠀.  ☆⠀╯
+<img width="1280" height="697" alt="Image" src="https://github.com/user-attachments/assets/91ec730c-8b2f-41ad-ad8d-0d75020e57db" />
