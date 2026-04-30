@@ -9,4 +9,3 @@ im free to int and u can c+h freely, but whisper b4 interact cuz i like to afk ,
 [check out my inf✶ tgc for more](http://t.me/yqwixx)
 
 ╰⠀✧⠀☁️ . ──╮⠀⠀⠀!!⠀⠀⠀╭──💭⠀.  ☆⠀╯
-<img width="1280" height="689" alt="Image" src="https://github.com/user-attachments/assets/b5bd4c0b-6b00-4650-a6b6-c1118c33355b" />
