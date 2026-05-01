@@ -8,5 +8,7 @@ im free to int and u can c+h freely, but whisper b4 interact cuz i like to afk ,
 
 [check out my inf✶ tgc for more](http://t.me/yqwixx)
 
+![Views](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito)
+
 ╰⠀✧⠀☁️ . ──╮⠀⠀⠀!!⠀⠀⠀╭──💭⠀.  ☆⠀╯
 
