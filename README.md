@@ -7,6 +7,6 @@
 ***dni*** ; base and judge by stereotypes х_х
 
 ![Views](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito)<br>
-[check out my inf✶ tgc for more](http://t.me/yqwixx)<br>
+[CHECK OUT MY INF✶ TGC FOR MORE](http://t.me/yqwixx)<br>
 ╰⠀✧⠀🗯⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀🚫⠀.  ☆⠀╯
 
