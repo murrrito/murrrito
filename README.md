@@ -7,7 +7,7 @@
 ***dni*** ; base and judge by stereotypes х_х
 
 ![Views](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito)<br>
-<code style="color : red">╰⠀✧⠀🗯⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀🪀⠀.  ☆⠀╯</code>
+<code style="color : red">╰⠀✧⠀🗯⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀⚕️⠀.  ☆⠀╯</code>
 
 
 
