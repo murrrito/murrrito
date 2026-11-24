@@ -3,11 +3,11 @@
 <div align="center"><code style="color : red">U GOT JESUS ON THE DASHBOARD BUT THE DEVIL'S UNDER MY HOOD</code><br>
 
 𝅄 whisper b4 interact cuz i like to afk ,, >_0<br>
-✧⠀⠀⠀🚿⠀.⠀⠀⠀⠀⠀⠀⠀★☆⠀⠀𝅄⠀⠀⠀⠀⠀(⠀⠀⠀!!⠀⠀⠀)<br>
+✧⠀⠀⠀🐛⠀.⠀⠀⠀⠀⠀⠀⠀★☆⠀⠀𝅄⠀⠀⠀⠀⠀(⠀⠀⠀!!⠀⠀⠀)<br>
 ***dni*** ; base and judge by stereotypes х_х
 
 ![Views](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito)<br>
-<code style="color : red">╰⠀✧⠀⠀🐛⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀⚕️⠀.  ☆⠀╯</code>
+<code style="color : red">╰⠀✧⠀⠀🚿⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀⚕️⠀.  ☆⠀╯</code>
 
 
 
