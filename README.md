@@ -5,7 +5,7 @@
 $${\textsf{\color{#9769f0} 𝅄 𝘄𝗵𝗶𝘀𝗽𝗲𝗿 𝗯𝟒 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 cuz i like to afk , 𝗰+𝗵 𝗳𝗿𝗲𝗲𝗹𝘆 }}$$<br>
 $${\textsf{\color{#6d77d6}✧⠀⠀⠀🐛⠀.⠀⠀⠀⠀⠀⠀⠀★☆⠀⠀𝅄⠀⠀⠀⠀⠀(⠀⠀⠀!!⠀⠀⠀)}}$$<br> 
 $${\textsf{\color{#afd945} 𝗱𝗻𝗶 ; base and judge by stereotypes .. }}$$<br> 
-![Visitors](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito&left_text=𝅄𝗰𝘂𝘁𝗶𝗲𝘀&left_color=%238a65e8&right_color=%2398c534&radius=7)<br>
+![Visitors](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito&left_text=𝅄𝗲𝗮𝘁𝗲𝗻&left_color=%238a65e8&right_color=%2398c534&radius=7)<br>
 <code style="color : red">╰⠀✧⠀⠀🚿⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀⚕️⠀.  ☆⠀╯</code>
 
 
