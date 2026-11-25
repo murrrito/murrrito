@@ -8,15 +8,6 @@ $${\textsf{\color{#c3ea51} 𝗱𝗻𝗶 ; base and judge by stereotypes .. }}$$<
 ![Visitors](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito&left_text=𝗲𝗮𝘁𝗲𝗻⠀𝗮𝗹𝗶𝘃𝗲:&left_color=%238a65e8&right_color=%2398c534&radius=7)<br>
 <code style="color : red">╰⠀✧⠀⠀🚿⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀⚕️⠀.  ☆⠀╯</code>
 
-    <Grid Background="Black">
-        <Canvas Width="800" Height="60">
-            <TextBlock FontSize="36" Canvas.Top="2" Canvas.Left="10">r</TextBlock>
-            <TextBlock FontSize="36" Canvas.Top="2" Canvas.Left="12">r</TextBlock>
-            <TextBlock FontSize="36" Canvas.Top="4" Canvas.Left="10">r</TextBlock>
-            <TextBlock FontSize="36" Canvas.Top="4" Canvas.Left="12">r</TextBlock>
-            <TextBlock FontSize="36" Canvas.Top="3" Canvas.Left="11" Foreground="Black">r</TextBlock>
-        </Canvas>
-    </Grid>
 
 
 
