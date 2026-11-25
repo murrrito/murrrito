@@ -12,8 +12,6 @@ $${\textsf{\color{#c3ea51}⠀⠀⠀ ⠀⠀𝗱𝗻𝗶 ; base and judge by stere
 ![Visitors](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito&left_text=𝗲𝗮𝘁𝗲𝗻⠀𝗮𝗹𝗶𝘃𝗲:&left_color=%238a65e8&right_color=%2398c534&radius=7)<br>
 <code style="color : red">╰⠀✧⠀⠀🚿⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀⚕️⠀.  ☆⠀╯</code>
 
-$${\color{#FF0000}H}{\color{#FF4000}e}{\color{#FF8000}l}{\color{#FFBF00}l}{\color{#FFFF00}o}$$
-
 
 
 
