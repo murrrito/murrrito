@@ -8,7 +8,7 @@
 
   </td></tr></table>
   
-<img width="50" height="33" alt="image"  src="https://github.com/user-attachments/assets/d0f5ad0c-2447-4a3c-a791-a0d9a57a4838" />![Visitors](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito&left_text=𝗲𝗮𝘁𝗲𝗻⠀𝗮𝗹𝗶𝘃𝗲:&left_color=%238a65e8&right_color=%23a3b746&radius=7)<img width="50" height="33" alt="image"  src="https://github.com/user-attachments/assets/2e080db3-0c43-4031-9934-4f513a8aa4f3" /><br>
+<img width="50" height="35" alt="image"  src="https://github.com/user-attachments/assets/d0f5ad0c-2447-4a3c-a791-a0d9a57a4838" />![Visitors](https://visitor-badge.laobi.icu/badge?page_id=murrrito.murrrito&left_text=𝗲𝗮𝘁𝗲𝗻⠀𝗮𝗹𝗶𝘃𝗲:&left_color=%238a65e8&right_color=%23a3b746&radius=7)<img width="50" height="35" alt="image"  src="https://github.com/user-attachments/assets/2e080db3-0c43-4031-9934-4f513a8aa4f3" /><br>
 $$\mathsf{\color{#a5cc5f}AN 𝗘\color{#a1bd73}𝗔𝗧\color{#9cb679}𝗘𝗥.\color{#98aa84} I\color{#96a193} NE\color{#9a9d94}ED\color{#9494a0} 𝗛\color{#8e86ab}𝗘\color{#876dc8}𝗥}$$ **[@mucusss](https://github.com/Mucusss)**<br>
 <code style="color : red">╰⠀✧⠀⠀🚿⠀.⠀⠀─╮⠀⠀⠀!!⠀⠀⠀╭─⠀⠀⠀⚕️⠀.  ☆⠀╯</code>
 
